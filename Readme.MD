@@ -30,4 +30,4 @@ Avec tout mon amour et ma reconnaissance.
 
 ---
 
-*Sadio Bocoumé — Mai 2026*
+*Sadio Bocoum — Mai 2026*
